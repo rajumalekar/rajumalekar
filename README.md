@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Electronics Related Projects 
 - 📫 How to reach me malekarraju55@gmail.com
 - 😄 Pronouns: Raju
-- ⚡ Fun fact: I Love Sport
+- ⚡ Fun fact: I'm Football Player 
 
 <!---
 rajumalekar/rajumalekar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
